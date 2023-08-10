@@ -1,0 +1,1 @@
+![](canpico_c.png)
